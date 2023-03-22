@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🌱 I’m currently learning about everyting related to technology
+- 📫 How to reach me: https://www.linkedin.com/in/leandro-ezequiel-molinari-30777a23/
